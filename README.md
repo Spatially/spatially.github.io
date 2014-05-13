@@ -1,1 +1,1 @@
-[nerds](nerds.urban4m.com)
+[nerds](http://nerds.urban4m.com)
