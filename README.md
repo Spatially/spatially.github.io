@@ -1,1 +1,1 @@
-[nerds](http://nerds.urban4m.com)
+[nerds](http://nerds.spatially.com)
